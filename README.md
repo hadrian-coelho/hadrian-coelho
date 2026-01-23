@@ -11,4 +11,4 @@
                                  /:/  /       \:\__\        \:\__\    \:\__\    \::/  /   
                                  \/__/         \/__/         \/__/     \/__/     \/__/    
 </pre>
-🔗 <a href="https://hadrian-coelho.github.io/" target="_blank">Social</a>
+🔗 <a href="https://hadrian-coelho.github.io/" target="_blank">Portfólio</a>
